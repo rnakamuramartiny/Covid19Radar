@@ -190,3 +190,22 @@
 - 寒椿
 - mick
 - MORIMOTO Norihiro
+- 豪
+- 和丸
+- mimzivvimzi
+- pivo
+- たかちゃん
+- YUKI
+- kitaken
+- 大久保 英徹
+- Kohei Ichihara
+- hmatsu47
+- Akihiko Kodama
+- hayao_k
+- tsukuba4596
+- Hirokazu Otaka
+- 大久保英徹
+- なかおよしゆき
+- 山口 司
+- Massa
+- 大久保 英徹
